@@ -113,3 +113,19 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Vanilla Ice Cream
+
+Ingredients:
+- 2 cups heavy cream
+- 1 cup whole milk
+- 3/4 cup granulated sugar
+- 1 tablespoon pure vanilla extract
+
+Instructions:
+1. In a mixing bowl, whisk together the heavy cream, whole milk, and granulated sugar until the sugar is completely dissolved.
+2. Add the vanilla extract to the mixture and whisk again to combine.
+3. Pour the mixture into an ice cream maker. Follow the manufacturer's instructions for your specific machine.
+4. Churn the mixture in the ice cream maker until it reaches a soft-serve consistency. This typically takes about 20-25 minutes.
+5. Transfer the partially frozen ice cream to a lidded container and freeze for at least 4 hours or overnight to allow it to firm up.
+6. Once fully frozen, your homemade vanilla ice cream is ready to be scooped and enjoyed!
